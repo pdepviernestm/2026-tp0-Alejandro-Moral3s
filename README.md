@@ -1,6 +1,6 @@
 # Presentación:
 
-Buenas! Mi nombre es **Alejandro Morales**, tengo 23 años y me encanta aprender idiomas. Hablo inglés e italiano fluidamente y me gustaria aprender alemán. Es la primera vez que hago esta materia. 
+Buenas! Mi nombre es **Alejandro Morales**, tengo 23 años y me encanta aprender idiomas. Hablo inglés e italiano fluidamente y me gustaria aprender alemán. Es la primera vez que hago esta materia. También me gusta la musica y hacer deportes. 
 
 Mi legajo es: **203.878-0**
 
